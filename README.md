@@ -1,0 +1,1 @@
+Finister AI starting area
